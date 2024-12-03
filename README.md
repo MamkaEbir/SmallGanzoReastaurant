@@ -1,2 +1,0 @@
-# SmallGanzoReastaurant
-Ресторан Маленького Ганзо
